@@ -1,2 +1,0 @@
-# johannes-martin
-personal portfolio
